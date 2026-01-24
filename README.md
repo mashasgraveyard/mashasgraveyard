@@ -1,16 +1,15 @@
-## Hi there 👋
+<p align="center">  MASHA/VANNY  ⟡ 
+she/him </p>　　　　　　　
 
-<!--
-**mashasgraveyard/mashasgraveyard** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <img src="https://github.com/mashasgraveyard/mashasgraveyard/blob/main/RUHAVINGFUNYET.gif?raw=true" />
+</p>
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center">you're probably here from <ins>ponytown!</ins> 　　(≧∇≦) 　　i'm <ins>offtab</ins> a lot and miss whispers, but i always read and appreciate them ! </p>
 
-Here are some ideas to get you started:
+<p align="center">interact freely >.< i don't always talk but i won't bite　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">my <ins>friends</ins> r priority and i might move to sit with them but C/H is A-OK ! </p>　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center"><ins>__IF YOU'VE BEEN LICKED__</ins> . . .</p>   
+                                                                                                                                                                                                                                <p align="center">i probably just liked your skin and/or saw you were active hehehee i like bugging people ^////^</p>
+                                                                                                                                                                                                                                　　　　　　　　　　　　　　　　　　　　　　　　　[straw](https://mashasgrave.straw.page/computerhome)　　　　[twt](https://x.com/mashasgraveyard)　　　　[cs](https://www.chickensmoothie.com/Forum/memberlist.php?mode=viewprofile&u=1128621)
