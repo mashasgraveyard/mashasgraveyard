@@ -1,5 +1,6 @@
 <p align="center">  MASHA/VANNY  ⟡ 
-she/him </p>　　　　　　　
+she/him </p>　
+<p align="center"> straw 4 more </p>
 
 <p align="center">
   <img src="https://github.com/mashasgraveyard/mashasgraveyard/blob/main/RUHAVINGFUNYET.gif?raw=true" />
