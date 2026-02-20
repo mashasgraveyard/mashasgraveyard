@@ -3,7 +3,7 @@ she/him </p>　
 <p align="center"> straw 4 more </p>
 
 <p align="center">
-  <img src="https://github.com/mashasgraveyard/mashasgraveyard/blob/main/RUHAVINGFUNYET.gif?raw=true" />
+  <img src="https://github.com/mashasgraveyard/mashasgraveyard/blob/main/THEBEST.gif?raw=true" />
 </p>
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center">you're probably here from <ins>ponytown!</ins> 　　(≧∇≦) 　　i'm <ins>offtab</ins> a lot and miss whispers, but i always read and appreciate them mwah </p>
 
