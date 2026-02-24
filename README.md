@@ -3,9 +3,9 @@ she/him </p>　
 <p align="center"> straw 4 more </p>
 
 <p align="center">
-  <img src="https://github.com/mashasgraveyard/mashasgraveyard/blob/main/THEBEST.gif?raw=true" />
+  <img src="https://github.com/mashasgraveyard/mashasgraveyard/blob/main/pony-town-BITEMYHIP-trot-blinking-padded-4x-ezgif.com-resize.gif?raw=true" />
 </p>
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center">you're probably here from <ins>ponytown!</ins> 　　(≧∇≦) 　　i'm <ins>offtab</ins> a lot and miss whispers, but i always read and appreciate them mwah </p>
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center">you're probably here from <ins>ponytown!</ins> 　　(≧∇≦) 　　i'm <ins>offtab</ins> a lot and miss whispers, but i always read and appreciate them mwah </p>
 
 <p align="center">interact freely >.< i don't always talk but i won't bite and like meeting new people　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
