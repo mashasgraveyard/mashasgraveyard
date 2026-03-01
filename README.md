@@ -19,4 +19,4 @@ she/him </p>　
   <img src="stamp1.webp"  />
   <img src="stamp2.png"  />
 </p>
-<img src="https://github.com/mashasgraveyard/mashasgraveyard/blob/main/SadLittleBird.png?raw=true" />
+
