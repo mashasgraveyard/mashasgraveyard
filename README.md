@@ -22,3 +22,6 @@ ivy / mina , ivy / dynamo , graves / celeste
 <br>most doorman ships
 <br>graves / apollo
 <br>celeste , silver , or mina / any man
+
+<br>thank you for reading!
+<br> [guestbook/ata](https://shoeflop.atabook.org/) | [strawpage](https://butcherbunnies.straw.page/) | [click](https://arab.org/click-to-help/palestine/)
