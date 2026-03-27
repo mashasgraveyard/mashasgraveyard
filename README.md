@@ -3,7 +3,7 @@
 <br>⤷ eng , canadian/ukrainian</p>
 <img src="https://files.catbox.moe/0zr53h.png" width="500px" length="100px">
 <img src="https://files.catbox.moe/or9f1t.gif" align="right" width="100px" length="100px"><img src="https://files.catbox.moe/lhfzhc.gif" align="right" width="100px" length="100px">
-<p align="left">hi ponytowners <i>!</i> i'm offtab a lot but i always read whispers (eventually) kiss/boops/c+h are welcome 
+<p align="left">hi ponytowners <i>!</i> i'm offtab a lot but i always read whispers (eventually) kiss/boops/c+h are welcome! 
 i'm autistic and my mood changes a lot, i might not always talk but i still love meeting new people. i don't bite!</p>
 <img src="https://files.catbox.moe/0zr53h.png" align="center" width="500px" length="100px">
 ╰┈➤ˎˊ˗  my current interests are deadlock, fnaf, and the bunny graveyard!
