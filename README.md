@@ -27,4 +27,4 @@ ivy / mina , ivy / dynamo , graves / celeste
 
 
 <br>thank you for reading!
-<br> [guestbook/ata](https://shoeflop.atabook.org/) | [strawpage](https://butcherbunnies.straw.page/) | [click](https://arab.org/click-to-help/palestine/)
+<br> [guestbook/ata](https://shoeflop.atabook.org/) | [strawpage](https://butcherbunnies.straw.page/) | [click](https://arab.org/click-to-help/palestine/) | [celeste playlist<3](https://open.spotify.com/playlist/5GXBvm6h4Qpck0h9ovPHPB?si=d227e8cd876f4da2)
