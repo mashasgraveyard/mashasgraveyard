@@ -14,7 +14,7 @@ i'm autistic and my mood changes a lot, i might not always talk but i still love
 <b> ivy / celeste </b> , mina / viscous , silver / holliday
 <br>
 <i> platonic/familial </i> <br>
-ivy / mina , ivy / dynamo , graves / celeste
+ivy / mina , ivy / dynamo , ivy / holliday , graves / celeste 
 <br>
 <br> <strong> dislike ˙◠˙ </strong> <br>
 <i> you're still fine to int if you like these! i just probably won't discuss them much with you, sorry!</i>
