@@ -19,7 +19,6 @@ ivy / mina , ivy / dynamo , ivy / holliday , graves / celeste
 <br> <strong> dislike ˙◠˙ </strong> <br>
 <i> you're still fine to int if you like these! i just probably won't discuss them much with you, sorry!</i>
 <br>most drifter ships
-<br>most doorman ships
 <br>graves / apollo
 <br>ivy , celeste , silver , or mina / any man
 <br>
